@@ -1,1 +1,1 @@
-The text in which code wifll be shared to otyhef.
+The text in which code will be shared to other.
